@@ -14,7 +14,7 @@
 2. In a large bowl, whisk together the flour, sugar, cocoa powder, chocolate chips, vanilla extract, and ground cinnamon.
 3. ...
 
-## Additional Directions by Alice:
+## Additional Directions:
 4. In a separate bowl, beat the eggs and add them to the mixture. Stir until well combined.
 5. Add a tablespoon of instant coffee to the dry ingredients for a hint of mocha flavor.
 6. Gradually add the milk and vegetable oil to the mixture, continuing to stir.
